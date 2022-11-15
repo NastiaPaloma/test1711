@@ -4,7 +4,7 @@
 **я хочу мало работы и много 
 денег**
 
-some text
+there new code absolutely
 
 some code
 
