@@ -4,14 +4,6 @@
 **я хочу мало работы и много 
 денег**
 
-there new code absolutely
+это код и программы от джуна
 
-some code
-
-go to the school
-
-revolution
-
-this is my first task
-
-this is my first code
+который хочет мало работать и много денег
